@@ -5,4 +5,4 @@ ESTE É O PERFIL DA ALUNA GIOVANA LUCIANA DE CAMPOS COSTA
 
 SEJAM BEM VINDOS!
 
-![](<div class="tenor-gif-embed" data-postid=")
+![](https://tenor.com/pt-BR/view/dog-smile-shyboos-smile-gif-24233810)
