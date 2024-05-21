@@ -5,7 +5,7 @@ REPOSITÓRIO DA TURMA 2C
 
 SEJAM BEM VINDOS!
 
-![image](https://github.com/GiovanaLuciana2C/2C/assets/169793967/18bec09a-b0fb-4cf4-97c8-dcbfeaae8a76)
+![](https://github.com/GiovanaLuciana2C/2C/assets/169793967/18bec09a-b0fb-4cf4-97c8-dcbfeaae8a76)
 
 Contato email 📧 giovanaluciana77@gmail.com
 
